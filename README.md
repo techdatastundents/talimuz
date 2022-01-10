@@ -1,0 +1,2 @@
+# talimuz
+Talim uchun 
